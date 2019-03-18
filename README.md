@@ -2,3 +2,4 @@
 #This is me (richard) showing I how how to commit and push :)
 and this is gerardo not knowing what he is doing
 #This is Tae 💩
+this is raymond being clueless as ever 
