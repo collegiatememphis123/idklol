@@ -2,8 +2,4 @@ Second attempt 💩 (Tae)
 
 
 RIchard here
-
-
-Gerado here
-
-mozambique here
+raymond here ive come to um clean the windows
